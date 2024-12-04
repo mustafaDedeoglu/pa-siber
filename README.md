@@ -1,0 +1,1 @@
+# pausiber'in etkinliğine katıldım
